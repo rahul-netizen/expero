@@ -1,5 +1,4 @@
 experooooo
-maii 
-kar di hai
+maii
 
 vmldvl
