@@ -1,6 +1,3 @@
 experooooo
 maii 
-branching 
-kar di hai
-
-vmldvl
+merge conficts try kr rhe
